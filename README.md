@@ -1,5 +1,5 @@
 - Hi, I’m Mishawn Lolis,
-      I go to LSU and currently am majoring in Computer science (Concentration software engineering), and minoring in digital media.
+      I recently graduated at LSU majoring in Computer science (Concentration software engineering), and minoring in digital media.
 - I’m interested in Photography, Videography, Programming, etc ;)
 - I’m currently focusing on making a bunch of side projects.
 
